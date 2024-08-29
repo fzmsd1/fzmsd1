@@ -1,4 +1,4 @@
-# Hi there, I'm [Fatima-Ezzahra]! 👋
+# Hi there, I'm Fatima-Ezzahra! 👋
 
 **Computer Science and Systems Management Engineering Student | Data Science Enthusiast**
 
